@@ -1,1 +1,1 @@
-The Prodigy's album "The Fat of the Land" (1997) popularized the big beat genre and featured hit singles like "Firestarter" and "Breathe."
+The rise of K-pop in the 2010s brought Korean music and culture to the global stage, with acts like BTS, BLACKPINK, and EXO gaining massive popularity worldwide.
