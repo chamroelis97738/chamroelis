@@ -1,1 +1,1 @@
-Daft Punk's debut album "Homework" (1997) revolutionized electronic music with its blend of house, techno, and funk, influencing a generation of artists.
+The 43rd Annual Grammy Awards took place in 2001, honoring artists like U2, Santana, and Eminem, who won Album of the Year for "The Marshall Mathers LP."
