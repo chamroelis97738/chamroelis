@@ -1,1 +1,1 @@
-The #MeToo movement, which gained momentum in the late 2010s, led to increased awareness and conversations about sexism, abuse, and harassment in the music industry.
+The 1990s saw the rise of electronic music genres like techno, house, and trance, with artists like The Prodigy, Daft Punk, and Fatboy Slim leading the charge.
