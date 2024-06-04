@@ -1,1 +1,1 @@
-Radiohead's album "OK Computer" (1997) is hailed as a masterpiece of alternative rock, blending experimental sounds with poignant lyrics on modern alienation.
+Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
