@@ -1,1 +1,1 @@
-Faith Hill's "Breathe" won the Grammy Award for Best Country Album, and the title track won Best Female Country Vocal Performance and Best Country Song.
+Songs like "I Am a Man of Constant Sorrow" performed by The Soggy Bottom Boys and "Down to the River to Pray" by Alison Krauss contributed to the soundtrack's acclaim.
