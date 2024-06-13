@@ -1,1 +1,1 @@
-The Notorious B.I.G.'s debut album "Ready to Die" (1994) established him as one of the greatest rappers of all time, featuring tracks like "Juicy" and "Big Poppa."
+Lil Nas X's "Old Town Road" (2019) broke records for the longest-running number-one single on the Billboard Hot 100 chart, spending 19 weeks at the top spot.
