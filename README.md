@@ -1,1 +1,1 @@
-*NSYNC's album "No Strings Attached" debuted at number one on the Billboard 200 chart and set a record for the highest first-week sales at the time.
+Kendrick Lamar's album "To Pimp a Butterfly" (2015) received critical acclaim and won the Pulitzer Prize for Music, the first non-classical or jazz album to do so.
