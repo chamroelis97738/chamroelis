@@ -1,1 +1,1 @@
-Beyoncé's visual album "Lemonade" (2016) received widespread acclaim for its exploration of themes like infidelity, race, and feminism, sparking discussions about black womanhood.
+*NSYNC's "No Strings Attached" spawned hit singles like "Bye Bye Bye" and "It's Gonna Be Me," solidifying their status as pop superstars.
