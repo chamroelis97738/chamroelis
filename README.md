@@ -1,1 +1,1 @@
-*NSYNC's album "No Strings Attached" debuted at number one on the Billboard 200 chart and set a record for the highest first-week sales at the time.
+OutKast released their critically acclaimed album "Stankonia" in 2000, which featured the hit singles "Ms. Jackson" and "B.O.B. (Bombs Over Baghdad)."
