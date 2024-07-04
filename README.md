@@ -1,1 +1,1 @@
-OutKast released their critically acclaimed album "Stankonia" in 2000, which featured the hit singles "Ms. Jackson" and "B.O.B. (Bombs Over Baghdad)."
+Kendrick Lamar's album "To Pimp a Butterfly" (2015) received critical acclaim and won the Pulitzer Prize for Music, the first non-classical or jazz album to do so.
