@@ -1,1 +1,1 @@
-The boy band craze continued in 2000 with the success of groups like Backstreet Boys, *NSYNC, and 98 Degrees, dominating the pop music charts.
+Kendrick Lamar's album "To Pimp a Butterfly" (2015) received critical acclaim and won the Pulitzer Prize for Music, the first non-classical or jazz album to do so.
