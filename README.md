@@ -1,1 +1,1 @@
-*NSYNC's album "No Strings Attached" debuted at number one on the Billboard 200 chart and set a record for the highest first-week sales at the time.
+The boy band craze continued in 2000 with the success of groups like Backstreet Boys, *NSYNC, and 98 Degrees, dominating the pop music charts.
