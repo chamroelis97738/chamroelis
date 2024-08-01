@@ -1,1 +1,1 @@
-Christina Aguilera released her self-titled debut album in 1999, but its success continued into 2000 with hit singles like "What a Girl Wants" and "Come On Over Baby (All I Want Is You)."
+Beyoncé's surprise self-titled album release on iTunes in 2013 set a new standard for music drops, with no prior announcement or promotion.
